@@ -1,1 +1,1 @@
-My image bed
+My image bed.
